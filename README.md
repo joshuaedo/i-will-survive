@@ -15,3 +15,27 @@ Just turn around now
 Weren't you the one who tried to hurt me with goodbye?
 You think I'd crumble?
 You think I'd lay down and die?
+
+## Chapter Two
+Oh no, not I, I will survive
+Oh, as long as I know how to love, I know I'll stay alive
+I've got all my life to live
+And I've got all my love to give and I'll survive
+I will survive, hey, hey
+It took all the strength I had not to fall apart
+Kept trying hard to mend the pieces of my broken heart
+And I spent oh-so many nights just feeling sorry for myself
+I used to cry
+But now I hold my head up high and you see me
+Somebody new
+I'm not that chained-up little person still in love with you
+And so you felt like dropping in and just expect me to be free
+Well, now I'm saving all my lovin' for someone who's loving me
+Go on now, go, walk out the door
+Just turn around now
+'Cause you're not welcome anymore
+Weren't you the one who tried to break me with goodbye?
+You think I'd crumble?
+You think I'd lay down and die?
+
+
